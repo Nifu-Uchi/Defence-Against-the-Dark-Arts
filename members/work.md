@@ -3,7 +3,7 @@ Aqua Eructo ·
  Cave inimicum ·
   Counter-curses
 · Counter-jinxes ·
- 磔の呪文 (クルーシオ) · 
+ 貼り付けの呪文 (クルーシオ) · 
  Curse of the Bogies (Mucus ad Nasuem) ·
   Cursed barrier spell · 
   Densaugeo ·
